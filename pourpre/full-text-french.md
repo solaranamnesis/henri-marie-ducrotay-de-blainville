@@ -1,6 +1,6 @@
 # Pourpre.
 
-## Par Henri Marie Ducrotay de Blainville.
+## Par Henri-Marie Ducrotay de Blainville.
 
 ### Extrait du 43e volume de _Dictionnaire des Sciences Naturelles_.
 
