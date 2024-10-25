@@ -1,6 +1,6 @@
-# Henri Marie Ducrotay de Blainville.
+# Henri-Marie Ducrotay de Blainville.
 
-Public Domain Works of Henri Marie Ducrotay de Blainville (1777-1850).
+Public Domain Works of Henri-Marie Ducrotay de Blainville (1777-1850).
 
 ## Pourpre.
 
